@@ -1,0 +1,1 @@
+_Intelligent_, **Smart**
